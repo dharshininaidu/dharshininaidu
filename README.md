@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning cybersecurity btech
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me ...dharshininaidu6@gmai.com
+- 📫 How to reach me ...dharshininaidu6@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: reading
 
